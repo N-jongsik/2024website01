@@ -1,1 +1,1 @@
-[88하조](https://n-jongsik.github.io/2024website01/)
+[88team](https://n-jongsik.github.io/2024website01/)
